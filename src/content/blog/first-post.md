@@ -4,13 +4,32 @@ description: 'Lorem ipsum dolor sit amet'
 pubDate: 'Jul 08 2022'
 heroImage: '/blog-placeholder-3.jpg'
 ---
+วันนี้ได้ไปเดินงาน Hops Market 2025 งานนี้เป็นงานเกี่ยวกับ Book / Handmade /Drink / Live Music / Art & Craft  โดยในวันที่มานั้นเป็นงานวันสุดท้าย วันที่ 7 พอดี จริงๆงานนี้ที่ได้มาเพราะเพื่อนได้ทักมาตอนกำลังจะเลิกงานพอดีชวนไปงาน ตัวเราก็สองจิตสองใจไปดีไหม เเต่วันศุกร์พอดี ก็เลยออกไปงานเลยเเบบไม่รู้มู๊ดงานด้วย 
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Vitae ultricies leo integer malesuada nunc vel risus commodo viverra. Adipiscing enim eu turpis egestas pretium. Euismod elementum nisi quis eleifend quam adipiscing. In hac habitasse platea dictumst vestibulum. Sagittis purus sit amet volutpat. Netus et malesuada fames ac turpis egestas. Eget magna fermentum iaculis eu non diam phasellus vestibulum lorem. Varius sit amet mattis vulputate enim. Habitasse platea dictumst quisque sagittis. Integer quis auctor elit sed vulputate mi. Dictumst quisque sagittis purus sit amet.
+บรรยากาศในงานนี้มี ดนตรีสดเล่นอยู่ตรงกลาง เเล้วมีเก้าอี้จัดวางไว้รอบๆ เวที เป็นวง มูดบรรยากาศในงานจะเป็นกลุ่มคนนั่งฟังเพลง จิบคราฟเบียร์กินกัน 
 
-Morbi tristique senectus et netus. Id semper risus in hendrerit gravida rutrum quisque non tellus. Habitasse platea dictumst quisque sagittis purus sit amet. Tellus molestie nunc non blandit massa. Cursus vitae congue mauris rhoncus. Accumsan tortor posuere ac ut. Fringilla urna porttitor rhoncus dolor. Elit ullamcorper dignissim cras tincidunt lobortis. In cursus turpis massa tincidunt dui ut ornare lectus. Integer feugiat scelerisque varius morbi enim nunc. Bibendum neque egestas congue quisque egestas diam. Cras ornare arcu dui vivamus arcu felis bibendum. Dignissim suspendisse in est ante in nibh mauris. Sed tempus urna et pharetra pharetra massa massa ultricies mi.
+ในงานจะมีบูทมากมาย เช่น บูทของกิน หนังสือ คราฟเบียร์ งานคราฟต่างๆ เช่น น้ำหอมทำเอง กำไร สร้อยข้อมือต่างๆ สร้อยสายมูก็มีนะ 
+ส่วนตัวในงานนี้เดินไป เกือบ 10 รอบได้ ได้มีโอกาสคุยกับคนทำคราฟเบียร์ เเละ ชิมเบียร์ฟรี เจ้าของบูทใจดีกันมาก เดินผ่านมีเรียกไปชิมฟรีด้วย 
+ถามรายละเอียดกับเบียร์พี่ๆก็ตอบให้ ระเอียดด้วย เเละเเต่ละบูทมีความเเตกต่างกันมาก 
 
-Mollis nunc sed id semper risus in. Convallis a cras semper auctor neque. Diam sit amet nisl suscipit. Lacus viverra vitae congue eu consequat ac felis donec. Egestas integer eget aliquet nibh praesent tristique magna sit amet. Eget magna fermentum iaculis eu non diam. In vitae turpis massa sed elementum. Tristique et egestas quis ipsum suspendisse ultrices. Eget lorem dolor sed viverra ipsum. Vel turpis nunc eget lorem dolor sed viverra. Posuere ac ut consequat semper viverra nam. Laoreet suspendisse interdum consectetur libero id faucibus. Diam phasellus vestibulum lorem sed risus ultricies tristique. Rhoncus dolor purus non enim praesent elementum facilisis. Ultrices tincidunt arcu non sodales neque. Tempus egestas sed sed risus pretium quam vulputate. Viverra suspendisse potenti nullam ac tortor vitae purus faucibus ornare. Fringilla urna porttitor rhoncus dolor purus non. Amet dictum sit amet justo donec enim.
+ความรู้คราฟเบียร์ 
+บางทีเบียร์รสชาติขม เรียกว่า IPA ผสมใบฮอบลงไป รวมถึงเบียร์ที่เราเคยรับประทานทั่วไปด้วยก็มีผสมใบฮอบลงไปด้วย อันนี้พี่เค้าบอกมา ส่วนใหญ่ที่เข้าใจจะเป็นเบียร์ต้ม กลิ่นค่อนข้างจะมีเอกลักษณ์เฉพาะตัว เเละสายหมัก สายหมักมีสองสายที่ผมจำเเนกเองคือ สายคล้ายไวน์ คือกลิ่นหอม หวาน เปรี้ยวซ่า เหมือนกินไวน์เลย อันนี้ได้จากเอาผลไม้ที่มีรสขาติมาหมัก  เเอลกอฮอล์น้อย เเละอีกสาย สายของหวาน(ขม) กลิ่นเหมือนโกโก้ นมครีมต่างๆ อันนี้เกิดจากเอาลูกผลของมันมาหมักรวมกันจึงได้สิ่งนี้ออกมา ในสายนี้มักจะยีสลงไปเผื่อผสมให่ได้เเอลกอฮอล์ออกมา ถือว่าสนุกเเละเปิดโลกมาก 
 
-Mattis ullamcorper velit sed ullamcorper morbi tincidunt. Tortor posuere ac ut consequat semper viverra. Tellus mauris a diam maecenas sed enim ut sem viverra. Venenatis urna cursus eget nunc scelerisque viverra mauris in. Arcu ac tortor dignissim convallis aenean et tortor at. Curabitur gravida arcu ac tortor dignissim convallis aenean et tortor. Egestas tellus rutrum tellus pellentesque eu. Fusce ut placerat orci nulla pellentesque dignissim enim sit amet. Ut enim blandit volutpat maecenas volutpat blandit aliquam etiam. Id donec ultrices tincidunt arcu. Id cursus metus aliquam eleifend mi.
-
-Tempus quam pellentesque nec nam aliquam sem. Risus at ultrices mi tempus imperdiet. Id porta nibh venenatis cras sed felis eget velit. Ipsum a arcu cursus vitae. Facilisis magna etiam tempor orci eu lobortis elementum. Tincidunt dui ut ornare lectus sit. Quisque non tellus orci ac. Blandit libero volutpat sed cras. Nec tincidunt praesent semper feugiat nibh sed pulvinar proin gravida. Egestas integer eget aliquet nibh praesent tristique magna.
+ความรู้น้ำหอม
+หลังจากเดินวนๆหลายรอบก็เริ่มสนใจร้านน้ำหอมชื่อ ... เลยเข้าไปสอบถาม เเล้วลองเทสน้ำหอมไป หลังจากนั้นก็เดินออกมาคิดอีก 2 รอบก่อนจะตัดสินใจลงไปเวิร์คช้อป
+ในเวิร์คช็อปนี้เป็น น้ำหอมผสมเอง(ร้านผสมเอง) ซึ่งอันนี้ค่อนข้างประทับใจ ในเวิร์คช้อป ได้ความรู้ของ EDP เเละ EDT ในร้านบอกว่าของร้านนั้น EDT อยู๋ได้ 6-8 ชม เเละ EDP อยู่ได้ 12 ชมส่วนราคา 10 ml ทั้งคู๋ EDP ราคา 600 เเละ EDT ราคาอยู่ที่ 400 บาท ซึ่งถ้าหากซื้อจะได้ทำเวิร์คช็อปฟรี โดยในเวิร์คช็อปนั้นจะเป็นการ custom หรือ ปรับเเต่งน้ำหอมออกมาให้ตรงจุดกับสิ่งที่เราต้องการ จะได้กลิ่นที่เราชอบมากที่สุด  โดยเค้าจะให้กระดาษ 1 ใบมา หลังจากนั้นมีสองวิธีในการดึงข้อมูลของเราไปสกัดออกมาทำเป็นน้ำหอมตามนี้ 1. ให้เราระบายลงไปเองเลย ทำอะไรก็ได้ ละเลงก็ได้ หรือเขียนอะไรก็ได้ 
+2. มีชุดคำถามมาให้ 5 อันคือ
+    ข้อที่ 1 ความฝันหรือสิ่งที่อยากทำคืออะไร เขียนมากี่ข้อก็ได้ 
+    ข้อที่ 2 ในความฝันหน้าตาเป็นยังไง มีอะไรบ้าง 
+    ข้อที่ 3 หากต้องเลือกต้นไม้ในความฝันต้องการต้นไม้แบบไหน 
+    ข้อที่ 4 กลิ่นของดอกไม้หรือต้นไม้นั้นมีกลิ่นยังไง 
+    ข้อที่ 5 กลิ่นที่ไม่ชอบมีอะไรบ้าง
+ซึ่งทั้ง 5 ข้อนี้ทำให้สามารถรู้กลิ่นที่อยากได้ได้เลย 
+ตอนเเรกที่เข้าไปสอบถามเเอบกังวล เพราะไม่รู้จะระบายอะไรออกมา หรือเขียนอะไรดี เเต่สุดท้ายก็ลงไปนั่งเก้าอี้อยู่ดี 55555 หลังทำเสร็จก็รู้เลยว่าจะได้กลิ่นเเบบไหน หลังจากนั้นเจ้าของร้านหรือพี่ที่มาทำเวิร์คช็อปจะมาทำการวิเคราะห์สิ่งที่เราบรรยายลงไป จากนั้นจะเริ่มผสม น้ำมันน้ำหอมลงไป ทีละหยด ค่อยๆเเต่งกลิ่น จนเต็ม หลอดที่เค้ากำหนดไว้ หลังจากนั้นจะนำ น้ำมันผสมอันนี้นั้น ไปผสมเเอลกอฮอล ความตื่นเต้นจะอยู๋ช่วงนี้ หลังจากน้ำหอมออกมา เราจะได้กลิ่นที่เเปลกไม่เหมือนใคร สำหรับผมถือว่าหอมมาก ถูกใจสุดๆ ในใจอยากได้เเบบสะอาดๆ หอมสดชื่น 
+ในระหว่างทำก็มีสอบถามรายละเอียดเรื่อยๆ เช่น น้ำมันน้ำหอมได้มาจากไหน หลักการผสมเป็นยังไง กลิ่นชายเเละหญิงต่างกันไหม ซึ่งพี่เค้าตอบข้อนี้ดีมาก ก่อนอื่นในคำถามเราก็อธิบายไปว่า ผู้ชายส่วนใหญ่ตามช็อป กลิ่นจะค่อนข้าง มีกลิ่นไม้ๆ เผาๆ ส่วนผู้หญิงจะไปทาง กลิ่นผลไม้หอมๆหวานๆ เเล้วพี่ตอบมาว่า อันนี้เเล้วเเต่ชอบเลย เราชอบเเบบไหนก็ได้เเบบนั้นเเหละ ไม่มีถูกผิด สิ่งที่เค้าบอกมาเป็นการตลาด เราเลยออกมาทำเเบบนี้ขาย ออกมาเวิร์คช็อป (ออกมาครั้งเเรกของร้านด้วย) เพื่อให้คนเจอสิ่งที่ตัวเองชอบจริงๆได้ ระหว่างคุยๆทำๆ ก็มีพี่เจ้าของร้านอีกคน เอาน้ำมาเสิร์ฟให้ พร้อมให้นามบัตรติดต่อ อันนี้คือช่องทางติดต่อ 
+line :  https://line.me/R/ti/p/@344ppnkx
+ig : https://www.instagram.com/aquariagem_emmaria/
+ร้านชื่อ : AquariaGem&EMMARIA 
+ตัวร้านไม่มีหน้าร้าน ถ้าจะสั่งซื้อสามารถซื้อได้ออนไลน์ที่เดียวเท่านั้น เเต่มั่นใจว่าคุณจะได้รับน้ำหอมที่เฉพาะตัวคุณเเน่นอน !
+ใครสนใจทักไปสอบถามพูดคุยได้เลย เเล้วคุณจะได้น้ำหอมไม่เหมือนใคร 
+ซึ่งสรุปวันนี้ที่ไปวานมาก็ได้รู้เรื่องคราฟเบียร์มากขึ้น เเละความรู้เกียวกับน้ำหอมมากขึ้น ถือว่าเป็นประสบการณ์ที่ดีมาก
